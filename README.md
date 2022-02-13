@@ -1,5 +1,5 @@
 # Taobao-keeb-stores
-THIS IS NOT AN EXHAUSTIVE LIST
+THIS IS NOT AN EXTENSIVE LIST
 these are only the few stores I've personally used and had no issues with
 
 LARGE STORES
